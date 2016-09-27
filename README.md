@@ -1,1 +1,0 @@
-# trabalho3_calculo
